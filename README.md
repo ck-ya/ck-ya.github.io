@@ -1,4 +1,5 @@
 by -> @sosauce
-<p>it looked cool :)</p>
+
+it looked cool :)
 
 im still not done editing it.. so dont say i copied TT
